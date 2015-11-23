@@ -1,1 +1,1 @@
-# 1&1 Hosting
+# safeshops
